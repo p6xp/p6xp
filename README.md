@@ -9,6 +9,7 @@ favour of the lack of work that Artificial Intelligence causes in various aspect
 consider debating to be an extremely enriching activity, and I am always open to debate. If you have some time and would
 like to discuss a topic, please feel free to send me a message. My Discord username is p6xp. Speaking of which, I have
 created multiple Discord communities with around 3,500 members. I was involved in some activities of a somewhat illicit
-nature on some platforms, which helped me to better understand certain things that I consider fundamental. I don't like to give
-too much information about myself, so you'll have to get to know me by contacting me! I can speak Spanish, French and English.
+nature on some platforms, which helped me to better understand certain things that I consider fundamental. I don't like to
+give too much information about myself, so you'll have to get to know me by contacting me! I can speak Spanish, French
+and English.
 ```
