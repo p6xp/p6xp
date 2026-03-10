@@ -11,5 +11,5 @@ like to discuss a topic, please feel free to send me a message. My Discord usern
 created multiple Discord communities with around 3,500 members. I was involved in some activities of a somewhat illicit
 nature on some platforms, which helped me to better understand certain things that I consider fundamental. I don't like to
 give too much information about myself, so you'll have to get to know me by contacting me! I can speak Spanish, French
-and English.
+and English. My Discord username is p6xp, and my Telegram is @e53733
 ```
