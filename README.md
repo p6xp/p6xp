@@ -13,5 +13,3 @@ nature on some platforms, which helped me to better understand certain things th
 give too much information about myself, so you'll have to get to know me by contacting me! I can speak Spanish, French
 and English.
 ```
-
-ddd
